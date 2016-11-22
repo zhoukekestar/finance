@@ -1,0 +1,11 @@
+## History of gold
+* [List of economic crises](https://en.wikipedia.org/wiki/List_of_economic_crises)
+* [2008: The 2008 Summer Olympics, Global financial crisis](https://en.wikipedia.org/wiki/2008)
+* [Historical gold](http://www.kitco.com/charts/historicalgold.html)
+* [Google trends](https://www.google.com/trends/)
+* [The times](http://www.thetimes.co.uk/)
+* [BBC](http://www.bbc.com/)
+* [CNN](http://edition.cnn.com/world)
+* [FoxNews](http://www.foxnews.com/)
+* [News Sites](http://www.ebizmba.com/articles/news-websites)
+* [News Sites](http://www.alexa.com/topsites/category/News)
